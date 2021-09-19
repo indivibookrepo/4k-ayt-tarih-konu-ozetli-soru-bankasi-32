@@ -1,0 +1,1 @@
+# 4k-ayt-tarih-konu-ozetli-soru-bankasi-32
